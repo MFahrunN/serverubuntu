@@ -19,6 +19,8 @@
 
 ![image](https://github.com/MFahrunN/serverubuntu/assets/148179736/95253e2b-b9b1-4bdc-b85e-af40fac7647f)
 
+![Screenshot 2023-12-19 230849](https://github.com/MFahrunN/serverubuntu/assets/148179736/ccc3e8ef-79dc-4fb4-8a31-b2d5202402a0)
+
 
 
 
